@@ -1,2 +1,0 @@
-# cj
-Things About ME
